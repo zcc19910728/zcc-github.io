@@ -1,2 +1,0 @@
-# binglingwy.github.io
-bingling
